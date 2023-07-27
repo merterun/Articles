@@ -1,7 +1,7 @@
 
-You might be wondering why so many people seem disinterested in this crucial aspect of their lives. Well, grab your snorkels and join me, Jeff Delaney from Fireship's Youtube channel, as we unravel the enigma behind this widespread apathy towards managing our money.
+You might be wondering why so many people seem disinterested in this crucial aspect of their lives. Welcome to the club.
 
-As we embark on this journey, it's essential to recognize that the problem runs deeper than mere indifference. True, not everyone finds finance riveting, but there are hidden forces at play that prevent many from engaging with their financial well-being fully. So, let's shed light on these underwater currents and understand why navigating the seas of personal finance can be challenging for many.
+It's essential to recognize that the problem runs deeper than mere indifference. True, not everyone finds finance riveting, but there are hidden forces at play that prevent many from engaging with their financial well-being fully. So, let's shed light on these underwater currents and understand why navigating the seas of personal finance can be challenging for many.
 
 #### 1. Financial Intimidation - A Daunting Abyss:
 
