@@ -12,8 +12,8 @@ Moreover, science also whispers its approval of this ancient practice. Studies h
 
 Think about it: amidst the chaos of a digital world, the piece of paper remains constant and unchanging. It defies the chaos theory, retaining its integrity against the relentless tide of technology. And there's an elegant irony in that, don't you think?
 
-But alas, do not dismiss the importance of safeguarding this parchment relic. Remember, even in the realms of ink and paper, threats loom. Fire, water, and mischief can befall this keeper of secrets. So, do treat it with due reverence, like a sacred relic in a digital temple.
+But, do not dismiss the importance of safeguarding this parchment relic. Remember, even in the realms of ink and paper, threats loom. Fire, water, and mischief can befall this keeper of secrets. So, do treat it with due reverence, like a sacred relic in a digital temple.
 
-In conclusion, dear self, as we navigate the unpredictable waters of the digital age, let us cherish the humble piece of paper that stands as a bulwark against the digital deluge. Let us celebrate its simplicity and embrace the irony of our times - where the most potent shield against the virtual sea lies in the realm of ink and pulp.
+In conclusion, as we navigate the unpredictable waters of the digital age, let us cherish the humble piece of paper that stands as a bulwark against the digital deluge. Let us celebrate its simplicity and embrace the irony of our times - where the most potent shield against the virtual sea lies in the realm of ink and pulp.
 
 And so, armed with pen and paper, fear not the digital tempest, for your passwords and seed phrases shall find refuge in this humble sanctuary, away from prying eyes and mischievous algorithms. After all, in this grand symphony of science and irony, the piece of paper emerges as a timeless note of security in the ever-changing symphony of the digital age.
