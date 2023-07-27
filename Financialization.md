@@ -1,6 +1,5 @@
 ### Financialization: A Humorous Quest for Economic Sanity
 
-Dear Self,
 
 In the ever-evolving landscape of our global economy, the rise of financialization has been nothing short of a spectacle. It's like a circus where the acrobats of Wall Street perform gravity-defying feats, while the real economy languishes in the shadows, juggling the consequences of this mesmerizing show. But let's put on our skeptical hats and question the true worth of this financialization trend. Has it truly bolstered economic stability, or are we just trapped in a carnival of speculative bubbles, where profits reign supreme and the real economy suffers?
 
