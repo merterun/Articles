@@ -1,4 +1,3 @@
-
 Hey there,
 
 Let's talk about the world of decentralization and web3 - the mighty antidote to those pesky data monopolies that seem to have a vice-like grip on our digital lives. We're about to embark on a journey of empowerment, restoring sovereignty in the vast realm of 1s and 0s.
