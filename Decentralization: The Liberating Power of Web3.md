@@ -16,4 +16,4 @@ In this brave new world, creativity reigns supreme. Artists can finally receive 
 
 So, my friend, it's time to don your digital armor and step into the realm of web3. Embrace the power of decentralization and break free from the clutches of data monopolies. Let's revolutionize the web and create a future that's both wise and whimsical, where sovereignty is restored, and freedom is cherished.
 
-With that said, here are five short titles to encapsulate the essence of our journey:
+With that said, here are five short titles to encapsulate the essence of our journey
